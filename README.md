@@ -8,7 +8,7 @@ Meu nome é Geovana Luiza
 
 ### Você pode entrar em contato comigo: mailbox
 
-geovana.cezar@escol.pr.gov.br
+geovana.cezar@escola.pr.gov.br
 
 @geluizaa
 
